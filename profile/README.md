@@ -1,7 +1,7 @@
-![https://www.ledgerleap.com/](https://www.ledgerleap.com/wp-content/uploads/2023/04/site-logo-black-300x50.png)
+![[https://www.ledgerleap.com/](https://www.fincenfetch.com/)](https://www.fincenfetch.com/wp-content/uploads/2023/08/site-logo.png)
 
-## Scale Your Future. Web3 Technology Awaits.
+## Corporate Transparency Act Filing Software for Law & Accounting Firms
 
-#### Embark on your Web3 journey with our unrivalled expertise to transform your business and set new standards in your industry with decentralized technology.
+#### FincenFetch streamlines FinCEN beneficial ownership information reporting for firms and their clients.
 
-#### [Contact Us](https://www.ledgerleap.com/)
+#### [Contact Us]([https://www.ledgerleap.com/](https://www.fincenfetch.com/)https://www.fincenfetch.com/)
